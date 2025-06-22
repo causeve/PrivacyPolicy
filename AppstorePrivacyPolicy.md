@@ -73,5 +73,5 @@ We may update this policy to reflect app changes. We’ll post the new policy he
 If you have questions or requests regarding this policy, please contact:
 
 **VR Simulator Support**  
-- Email: [support@yourcompany.com](mailto:support@yourcompany.com)  
-- Website: [https://www.yourcompany.com](https://www.yourcompany.com)
+- Email: [ilango240694@gmail.com](mailto:ilango240694@gmail.com)  
+- Website: [https://causeve.com](https://causeve.com)
